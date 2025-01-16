@@ -1,1 +1,1 @@
-# aiart2024.github.io
+# aiart2025.github.io
